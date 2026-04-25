@@ -1,4 +1,4 @@
-
+minecraft vip Scripts is the best minecraft Script, featuring god mode and auto-farm. Safe and powerful for all your needs.
 
 
 
